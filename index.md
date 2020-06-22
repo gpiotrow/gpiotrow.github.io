@@ -26,3 +26,5 @@ While watching a political talk show, Motss gets frustrated that the media are c
 As Conrad Brean (Robert de Niro) said:
 > A good plan today is better 
 > than a perfect plan tomorrow.
+
+<img src="https://hundehausen.de/wp-content/uploads/2019/10/ruhige-hunderasse-1200x800.jpg"/>
