@@ -22,3 +22,7 @@ While watching a political talk show, Motss gets frustrated that the media are c
 * John Michael Higgins as John Levy
 * Suzie Plakson as Grace
 * Woody Harrelson as Sgt. William Schumann
+
+As Conrad Brean (Robert de Niro) said:
+> A good plan today is better 
+> than a perfect plan tomorrow.
